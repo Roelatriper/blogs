@@ -1,4 +1,9 @@
-## 一个淼淼的 ~~水~~  博客
+
+## This Archive has been remarked as read-only,which means it has abandoned.I save it so that i can memorial my junior high school life.
+
+## plz Redirect to my new web manually.
+
+### 一个淼淼的 ~~水~~  博客
 
 ![](https://ipcounter.ihcr.top/)
 
